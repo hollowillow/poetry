@@ -8,5 +8,5 @@ with the weeping willows growing close,
 lays a body of somebody that nobody really knows.
 
 People come and go to pass time,
-pass by, leabing flowers on the ground,
+pass by, leaving flowers on the ground,
 for someone they never knew and never will know now.
